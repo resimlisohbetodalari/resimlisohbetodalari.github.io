@@ -1,2 +1,2 @@
 # resimlisohbetodalari.github.io
-Resimli sohbet odaları
+Resimli sohbet odaları http://www.sohbetodalari.life/resimli-sohbet-odalari
